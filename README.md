@@ -5,7 +5,6 @@
 
 - 📫 How to reach me **Discord:Bit Attacker#9845**
 
-<h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
 
