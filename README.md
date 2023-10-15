@@ -3,7 +3,7 @@
 
 - 🔭 I’m currently working on **Own project**
 
-- 📫 How to reach me **Discord:Bit Attacker#9845**
+- 📫 How to reach me **Discord:whoami666___**
 
 <p align="left">
 </p>
