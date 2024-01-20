@@ -3,9 +3,9 @@
 
 - 🔭 I’m currently working on **I’m currently working on Own project**
 
-- 📫 Discord: **whoami666___**
+- 📫 Discord: **zekayro**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me: https://discord.gg/da56ryPDrb </h3>
 <p align="left">
 </p>
 
